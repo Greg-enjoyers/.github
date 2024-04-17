@@ -1,3 +1,3 @@
 # .Greg Enjoyers
 
-Made by (Blackninja511)[https://github.com/blackninja511/]
+Made by [Blackninja511](https://github.com/blackninja511/)

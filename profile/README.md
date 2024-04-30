@@ -1,6 +1,15 @@
 # ***Greg Project***
 ## Hi there 👋
 
+. . .🧢
+   
+. . .🗿
+   
+💪 👕 🤳
+
+. . .👖🍑
+   
+. . .🧦
 
 
 [Me](https://github.com/blackninja511) and [My friend](https://github.com/ycarf) are making a huge Greg project with maybe some easter eggs🌈
